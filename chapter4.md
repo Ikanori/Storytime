@@ -1,4 +1,4 @@
-# Chapter 4
+# Chapter 4: Henry is SO. Funny.
 “Maybe too much fun?” Henry joked, causing everyone to chuckle nervously.
 
 But just then, the lights flickered back on, followed by a loud popping noise. It turned out that Aki’s old toaster—which he always insisted on using to make snacks—had exploded, covering the area with burnt crumbs and a lingering smoky smell.

@@ -1,4 +1,4 @@
-# Chapter 2
+# Chapter 2: Funny Faces
 The trio immediately began brainstorming ideas. They threw around suggestions like “Dance Like Nobody's Watching” or “Speak in Accents for an Hour.” They even discussed an idea that involved wearing odd socks as a fashion statement. With laughter and enthusiasm, they created a list of challenges.
 
 After weeks of hard work, they finally finished the app, naming it “Boredom Busters.” The three of them were excited to launch it. They imagined users around the world breaking into spontaneous dance parties, talking like pirates, and even painting their pets’ nails.
