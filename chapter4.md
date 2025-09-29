@@ -1,4 +1,4 @@
-# Chapter 4
+# Chapter 4: Henry is SO. Funny.
 
 “Maybe too much fun?” Bob joked, causing everyone to chuckle nervously.
 

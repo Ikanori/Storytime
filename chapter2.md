@@ -1,4 +1,4 @@
-# Chapter 2
+# Chapter 2: Funny Faces
 
 The trio immediately began brainstorming ideas. They threw around suggestions like “Dance Like Nobody's Watching” or “Speak in Accents for an Hour.” They even discussed an idea that involved wearing odd socks as a fashion statement. With laughter and enthusiasm, they created a list of challenges.
 

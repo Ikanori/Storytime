@@ -1,4 +1,4 @@
-# Chapter 3
+# Chapter 3: Tim Ruins Everything
 
 “Hey, Tim! I’m busy launching an app,” Greta Thunberg said with a laugh.
 
